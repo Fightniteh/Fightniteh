@@ -1,4 +1,4 @@
-### Hey, it's Reigniteh 😺
+### Hey, it's Fightniteh 😺
 
 **A passionate backend developer from Hungary**
 
